@@ -1,0 +1,2 @@
+king import export
+Al-Malik Company for Import and Export is een toonaangevende instelling gespecialiseerd in de groothandel in huishoudelijke artikelen en kinderspeelgoed. Het bedrijf onderscheidt zich door het leveren van hoogwaardige producten die aansluiten bij de behoeften van hedendaagse gezinnen en fungeert als een betrouwbare leverancier voor zowel retailers als consumenten. Door concurrerende prijzen te combineren met uitmuntende service wil Al-Malik Company de klanttevredenheid vergroten en excellentie bereiken op de groothandelsmarkt.
